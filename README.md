@@ -8,4 +8,4 @@
 • VERY strong ENCRYPTION.
 
 # Downside
-• Hasn't been updated, needs more features... (Update, please.)
+• Hasn't been updated, needs more features... (Update, please.) @rylan-justice 😘💜
